@@ -60,11 +60,3 @@ Many modern systems are adapting to reduce pressure on students by introducing s
 
 Each school or institution may adapt these systems to fit their educational philosophy, and grading practices can vary widely depending on the subject, teacher, and academic level.
 
-
-
-By messaging ChatGPT, you agree to our Terms and have read our Privacy Policy.
-Don't share sensitive info. Chats may be reviewed and used to train our models. Learn more
-
-
-
-ChatGPT can make mistakes. Check important info.
